@@ -4,4 +4,4 @@ Pactify Auto Vote on website
 N’est pas affilié à Ascentia.
 # Discord
 <pre>.gg/plage ou Asuna#6565
-<img src="[https://ibb.co/DpRysHb]" data-canonical-src="[https://ibb.co/DpRysHb]" width="690" height="388" />
+<img src="https://imgur.com/Gatcs9y" data-canonical-src="https://imgur.com/Gatcs9y" width="690" height="388" />
